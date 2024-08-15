@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil de Caabee 😁
+## Bem-vindo(a) ao perfil de Caabee :D
 
  <div>
    <a href="https://github.com/Caabee">
